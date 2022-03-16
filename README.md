@@ -1,2 +1,2 @@
-# algeria-site-stady
+# algeria-site-study
 for my frends
